@@ -36,7 +36,7 @@ Transform your job search with AI-powered prompts! This comprehensive guide cont
 Created by **Anil** - Career Coach, Recruitment Consultant & AI Enthusiast
 
 Connect with me:
-- LinkedIn: [Your LinkedIn Profile]
+- LinkedIn:(https://www.linkedin.com/in/aneelv/)
 - Email: anil@wurks.in
 
 ## ⭐ Found This Helpful?
